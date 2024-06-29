@@ -1,3 +1,3 @@
 # Wallpapers
 
-A buch of wallpapers to use :)
+A bunch of wallpapers to use :)
